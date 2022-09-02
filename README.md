@@ -1,1 +1,0 @@
-# scouto-internshala-task
